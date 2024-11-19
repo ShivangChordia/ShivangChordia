@@ -12,7 +12,7 @@
 - Community-oriented tech initiatives
 
 ## 📫 How to reach me...
-- Email: schordia1092@conestogac.on.ca
+- Email: shivangchordia02@gmail.com
 - LinkedIn: [Shivang Chordia](https://www.linkedin.com/in/iamshivang/)
 - Website: [shivangchordia.me](https://shivangchordia.me)
 
