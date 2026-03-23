@@ -14,7 +14,7 @@
 ## 📫 How to reach me...
 - Email: shivangchordia02@gmail.com
 - LinkedIn: [Shivang Chordia](https://www.linkedin.com/in/iamshivang/)
-- Website: [shivangchordia.me](https://shivangchordia.me)
+- Website: [chordiashivang.com](https://chordiashivang.com)
 
 ## 😄 Pronouns: ...
 - He/Him
